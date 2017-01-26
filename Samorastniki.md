@@ -40,7 +40,7 @@ kamenjanje (na pokopališču) ... ženski del Karnic napada Meto, ona se ne zgan
  
  Otroci: Gal, Gaber, Mohor, Ožbej, Vid, Burga, Primož, Til, Nana
  
- # 10) Karnice
+# 10) Karnice
  
  Karničniki so bili botri Hudabivnikom; Karničnik s svojim obnašanjem uniči celo svojega sina(najprej ga pretepe do nezavesti, z besedami, s poizkusom ženitve, z razdednenjem, ... drsenje njegovemoči navzdol) 
  
