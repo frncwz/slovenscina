@@ -44,7 +44,7 @@ kamenjanje (na pokopališču) ... ženski del Karnic napada Meto, ona se ne zgan
  
  Karničniki so bili botri Hudabivnikom; Karničnik s svojim obnašanjem uniči celo svojega sina(najprej ga pretepe do nezavesti, z besedami, s poizkusom ženitve, z razdednenjem, ... drsenje njegovemoči navzdol) 
  
- # 11) jezik
+# 11) jezik
  
  preprost, realističen 
  -ljudsko obarvan (ljudska števila (9,..), 
