@@ -37,6 +37,7 @@ kamenjanje (na pokopališču) ... ženski del Karnic napada Meto, ona se ne zgan
  Zasnova ... Meta, čudovito dekle, pride služit na Karnice, je pridna delavka, očitajo ji ljubezen doOžbeja (povzroči prepad med Meto in Karnicami ­­­ proletarci in bogataši); opis Mete (popolnost) ­­­tudi revni ljudje so lahko lepi, drugih oseb ne opiše tako natančno ­ Zaplet ... nosečnost kot 17­letno dekle, Karničnik ne dovoli razmerja, kaznovanje Mete (dekle soljubusumna na njo) ­­­ Karnice se ženijo samo zaradi posestva in bogastva, ne zaradi ljubezni ­ Vrh ... Karničnik razdedni Ožbeja (peripetija, vojska), vrne se invalid (tudi duševni) in pijanec ­ Razplet ... Ožbej postaja vedno hujši pijanec, župnikov korak (ime 4.sina ­­­ prejšnji sostigmatizirani, označeni z imeni ­­­ pomeni upor Karniškemu gospodarstvu in legitimnost ljubezenskezveze, Ožbejev pogreb (Karničniki ponudijo odpravnino, Meta jo zavrne ­­­ moralna zmagovalka) ­ Razsnova ... preživetje Hudabivnikov
  
  # 9) otroci
+ 
  Otroci: Gal, Gaber, Mohor, Ožbej, Vid, Burga, Primož, Til, Nana
  
  # 10) Karnice
