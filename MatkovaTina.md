@@ -6,7 +6,7 @@ Pisatelj nampripoveduje, kako skupine ljudi romajo proti Gorici, kjer naj bi usm
 
 Tina je precej pobožna in popolnoma zaverovana v Boga, saj so še njene, če se takoizrazim, poslednje besede molitev. Celo tako pobožna je, da bi jo lahko enačili z Marijo, ki jetrpela podobne muke ob izgubi sina. Je čisto sama, brez podpore družine ali moža, povrhuvsega pa še noseča. Znajde se v izjemno težkem položaju, a še vedno najde toliko moči, da seodpravi na pot v upanju, da še poslednjič vidi svojega zaročenca. Na kratko bi lahko torejrekli, da je Tina pobožna, vztrajna in vdana izvoljencu.
 
-3) Na kateri svetopisemski motiv spominja njena vizija Gradnikove smrti?
+# 3) Na kateri svetopisemski motiv spominja njena vizija Gradnikove smrti?
 
 Ko Tina razmišlja kako bo videla Gradnika, pravi da bo še poslednjič poljubila njegovoglavo (ko bo že mrtev), kar spominja na Salomo in njeno izprijeno željo, da bi poljubila glavoJohanaana, vendar pa pri Tini ta želja ne deluje bolno, ampak kot zadnja želja ljubeče ženske.
 
@@ -14,6 +14,11 @@ Ko Tina razmišlja kako bo videla Gradnika, pravi da bo še poslednjič poljubil
 
 Matek je tipičen predstavnik nižjega sloja prebivalstva, ki mu največji smisel v življenjupredstavlja alkohol, pijača in kozarec vina. Je zelo plitek in katastrofalen oče. Zanemarja hčer,čeprav jo na koncu išče, a to se zdi kot nagonska reakcija, ne pa kot znak ljubezni in skrbi. Vdružbi puntarjev pa je seveda, tako kot vsi pijančki, družaben in zgovoren in razumljivonajpametnejši. Nezmožen se je zavedati najosnovnejših dejstev ali sprejeti kakršno koliodgovornost.
 
-5) Utemelji ali lahko noveli pripišemo katarzičen konec.
+# 5) Utemelji ali lahko noveli pripišemo katarzičen konec.
+
+Novela se konča s smrtjo Tine in njenim odhodom v nebesa, a če upoštevamo, da jeTina živela pobožno in je bila na koncu življenja v hudi stiski, je konec navsezadnje srečen,saj otrok preživi, Tina pa je rešena muk in trpljenja ter deležna mira v božjem kraljestvu, takoda lahko noveli pripišemo katarzičen konec.
+
+
+
 
 
