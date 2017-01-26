@@ -53,5 +53,6 @@ kamenjanje (na pokopališču) ... ženski del Karnic napada Meto, ona se ne zgan
  -slabšalni izrazi (pankrti,...) 
  -groteskni izrazi (izlegla,...) 
  -veliko paralelizmov
+ 
 
 
