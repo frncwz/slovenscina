@@ -1,10 +1,17 @@
-# Boj na Požiralniku
+# Prežihov Voranc: Boj na Požiralniku
+## Obnova
+Dihurjevi so živeli na zelo težavni zemlji, saj so jim ob vsakih padavinah požiralniki uničili skoraj ves pridelek. Zato so otroke pošiljali za pastirje. Sosedovi pa z njimi niso ravnali najlepše, zato se je mali Dihur odločil in pobegnil domov. Pred očetom se je skrival cele tri dni, a ko ga je oče našel, ga je tako nalomil, da ga je začela metati božjast. Ko je oče umrl je bajta pripadala njemu. Poleg bajte pa je podedoval še dolg petstotih kron. Ženo je našel pri bajti na Komeljnu. Zaradi premokre posesti se je Dihur včlanil v kmetijsko zadrugo, toda ker je videl, da ga imajo samo zato, da plačuje članarino se je tretje leto izpisal. Zemlje je bila ilovnata, zato je bilo zelo težko orati, ker pa niso imeli volov so morale to delo opravljati krave. Po šestih deževnih letih pa je prišla bolj suha sezona. Vsi drugi so zaradi suše hodili k maši ter prosili dežja, le Dihurjevi so ostajali doma in občudovali prečudovite posevke. Toda drugo leto pa je bilo ravno obratno, so pa oni na hribu bili vedno doma, Dihurjevi pa so hodili k maši za bolj suho obdobje.
+
+Ker je na domačiji bolj slabo kazalo za kakšen zaslužek, da bi lahko poplačal dolg se je Dihur, skupaj s svojim kolegom, odpravil na Svinjsko goro, pomagat tamkajšnjim kmetom. Tako je dolg znižal na dvesto kron k bajti pa je pripeljal volička, katerega pa je pri oranju tako pretepel, da je poginil. Tako je prišel čas žetve in dihurjevi so se zopet odpravili služit na sosednje njive. Tako je nekega dne Dihurka zaradi izčrpanosti zaspala v brazdi, v kateri je tudi splavila. Nezavestno so jo pripaljali domov, kjer je čez nekaj dni preminila. Kljub ponudbam, da bi Dihur prodal to bajto, se je on neomajno boril proti požiralniku. Otroke je poslal celo v šolo, vendar so se drugi otroci pritožili, da ne bodo hodili in se družili z otroki, ki imajo uši. Neč je celo na nekega fanta, ki ga je zmerjal vrgel kamen, da je fant padel po tleh. Od takrat naprej otrok ni več pošiljal v šolo. Dihurjevi pa so si prizadevali, da bi pridelali krompir zase, zato so se trudili in po dolgih mukah jim je uspelo najti tako seme, da je bila letina približno dobra. Kopanje krompirje je bilo pri Dihurjevih zelo svečano opravilo. Oče je vsakogar, ki je ranil sad namlatil, le pri Mici se jemalo zadrževal. Naslednje leto pa je bila letina spet zanič, zato sta Neč in Pungr skovala načrt in Jaromilu pokradla dovolj krompirja za ozimnico.
+
+Toda naslednji dan so prišli k Dihurju sodik, žandar in Jaromil. Ko so končno ugotovili, da sta kradla Neč in Pungr, so ju nalomili s palico. Nekega dne so se požiralniki zopet zbudili in grozili celotnemu pridelku. Dihurjevi so se pet dni borili s požiralnikom. Peti dan pa so se požiralniki umirili. Dihur je skopal jamo skozi ilovico do skalnate plasti, tako, da je voda lahko odtekala. Vendar, ker je bila jama globoka, se je material vsul in dihurju zmečkal trebuh. Zaradi taga je Dihur po nekaj dneh umrl. Otroci niso vedeli ali naj sploh koga obvestijo o smrti. Odločili so se, da bodo poslali pismo Sušniku, s katerim je Dihur delal na Svinjski gori. Sušnik je prišel na domačijo za njim pa so prišli še vsi vaščani. Po pogrebu so se Dihurji porazgubili po službah, domačijo pa je dobil sosed.
+
 ## O avtorju
 Prežihov Voranc, s pravim imenom Lovro Kuhar (1893 – 1950), se je rodil v koroški Podgori pod Uršljo goro. Obiskoval je dvojezično in zadružni tečaj v Ljubljani in na Dunaju. Leta 1915 so ga poslali na doberdobsko in tirolsko fronto. Po plebiscitu za severno mejo je opravljal različne politične funkcije, od leta 1921 v ilegali. Deloval je za "osvoboditev in združitev slovenskega naroda". Ob začetku druge svetovne vojne je deloval v ljubljanski ilegali, vendar so ga ujeli, zaprli in končno poslali v Mauthausen, kjer je smrtno zbolel. Posmrtno je dobil Prešernovo nagrado.
 Prvi vidnejši odmev je doživel z novelo **Boj na požiralniku** (1935). Pred njo je objavil zbirko **Povesti** (1925), za njo pa še druge novele in romane:
-* Požganica (1939),
-* Doberdob (1940),
-* Jamnica (1945)
+* **Požganica** (1939),
+* **Doberdob** (1940),
+* **Jamnica** (1945)
 
 Po vojni je napisal še dve knjigi potopisov **Od Kotelj do Belih vod** (1945) in **Borba na tujih tleh** (1946) ter zbirko otroških črtic **Solzice** (1949).
 
