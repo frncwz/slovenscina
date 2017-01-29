@@ -4,5 +4,5 @@ Prežihov Voranc, s pravim imenom Lovro Kuhar (1893 – 1950), se je rodil v kor
 
 # 2) Označi glavne junake
 
-Najbolj pomembna oseba v delu je seveda oče Dihur, ki ga spoznavamo že od otroških let. Žetakrat ga je mučila božjast, imel je tudi trdo vzgojo, ki jo je potem prenašal na otroke. Sovražihlapčevstvo in verjame v boljši jutri.Mati Dihurka je možu pokorna, vedno samo dela in skrbi za otroke. Ti se z drugimi otroci nerazumejo, kar je posledica vzgoje.
+Najbolj pomembna oseba v delu je seveda oče Dihur, ki ga spoznavamo že od otroških let. Že takrat ga je mučila božjast, imel je tudi trdo vzgojo, ki jo je potem prenašal na otroke. Sovražihlapčevstvo in verjame v boljši jutri.Mati Dihurka je možu pokorna, vedno samo dela in skrbi za otroke. Ti se z drugimi otroci nerazumejo, kar je posledica vzgoje.
 
