@@ -16,7 +16,7 @@ Problematika novele: koroška problematika malega človeka
 
 # 4) zgradba
 
-dvojna: okvirni del (statična) in vložena pripoved (dramatična, hitro stopnjevanje, dramskizasuki) ­ okvrini del: prihod do podrtije, sprehod, opazovanje ostankov imenitne graščine, na koncu govori opreteklosti, sedanjost, tip pripovedovalca je prvoosebni .... 1.dan ­ vložena pripoved: pripoved Metine najmlajše hčerke Nane (njen sin je drvar), usmerjena vprihodnost, tip pripovedovalca je tretjeosebni (avktorialni, vsevedni) .... 19.stoletje (življenjeKarničnikov in Hudabivnikov) ... več stoletij ­ uvod: impresija narave, trdoživost Korošcev, napoved bitke, socialno opisovanje (kmečka kuga,propadkmetij), pisatelj in njegov prijatelj poznata grdo zgodbo.
+dvojna: okvirni del (statična) in vložena pripoved (dramatična, hitro stopnjevanje, dramski zasuki) ­ okvrini del: prihod do podrtije, sprehod, opazovanje ostankov imenitne graščine, na koncu govori opreteklosti, sedanjost, tip pripovedovalca je prvo osebni .... 1.dan ­ vložena pripoved: pripoved Metine najmlajše hčerke Nane (njen sin je drvar), usmerjena v prihodnost, tip pripovedovalca je tretje osebni (avktorialni, vsevedni) .... 19.stoletje (življenjeKarničnikov in Hudabivnikov) ... več stoletij ­ uvod: impresija narave, trdoživost Korošcev, napoved bitke, socialno opisovanje (kmečka kuga,propadkmetij), pisatelj in njegov prijatelj poznata grdo zgodbo.
 
 # 5) imena
 
@@ -30,7 +30,7 @@ Meta ... protagonistka (nosilka pozitivnega, izjemnega materinstsva) ­ Karničn
 
 kaznovanje  žganje prediva (1.otrok)
 bičanje (2.otrok)  
-kamenjanje (na pokopališču) ... ženski del Karnic napada Meto, ona se ne zgane (moralnazmagovalka) ­ Meta odide kot zmagovalka, saj ne omahne pred Karničnikom, povzorči propad Karnic, otroci seponemčijo, Karničnik sam uniči svoj rod zaradi sovraštva do revnejšega rodu
+kamenjanje (na pokopališču) ... ženski del Karnic napada Meto, ona se ne zgane (moralna zmagovalka) ­ Meta odide kot zmagovalka, saj ne omahne pred Karničnikom, povzorči propad Karnic, otroci seponemčijo, Karničnik sam uniči svoj rod zaradi sovraštva do revnejšega rodu
 
 # 8) dramski trikotnik
 
@@ -42,7 +42,7 @@ kamenjanje (na pokopališču) ... ženski del Karnic napada Meto, ona se ne zgan
  
 # 10) Karnice
  
- Karničniki so bili botri Hudabivnikom; Karničnik s svojim obnašanjem uniči celo svojega sina(najprej ga pretepe do nezavesti, z besedami, s poizkusom ženitve, z razdednenjem, ... drsenje njegovemoči navzdol) 
+Karničniki so bili botri Hudabivnikom; Karničnik s svojim obnašanjem uniči celo svojega sina(najprej ga pretepe do nezavesti, z besedami, s poizkusom ženitve, z razdednenjem, ... drsenje njegove moči navzdol) 
  
 # 11) jezik
  
