@@ -1,5 +1,8 @@
 # CIRIL KOSMAČ:TANTADRUJ
 
+###Literarna zvrst: EPIKA
+###Literarna vrsta: NOVELA
+###Obdobje: SOCIALNI REALIZEM
 Novela   ima   pripovedni   okvir,   v   katerega   je   vključena   zgodba   o   Tantadruju,   Maticu   EnakiPalici,   Rusepatacisu,   Božorno­Boserni   in  Žakaju.   Gre   za   pisateljev   spomin   na   otroštvo(pisatelju je mati v otroških letih pripovedovala zgodbico o norčkih). Gre za pripoved o vaškihposebnežih   ­   norčkih,   ki   preživijo   skupaj   semanji   dan,   pri   tem   pa   skupno   in   posamičnozadevajo   robove   “normalnega”   sveta,   ki   ga   predstavlja   predvsem  župnik   kot   utelešenjesocialne   in   moralne   norme.   ”Norost”   vaških   posebnežev   ima   simbolne   razsežnosti,   medkaterimi   ima   osrednje   mesto   Tantadrujevo   hrepenenje   po   smrti.   V   celotni   noveli   pa   je   vospredju posameznik kot smrtno bitje.Da smisla življenja ni mogoče dognati, se pri Kosmaču v duhovno poglobljeni in umetniškopopolni obliki pojavi s Tantadrujem, norčkom, ki prepeva, da je “na tej zemljici mrzlo”, njegovispremljevalci pa tej misli s svojo iracionalno pametjo le pritrjujejo. Zato Tantadruj beži v smrt,ki   pa   je   normalni   svet   ne   more   dovoliti,   saj   bi   s   tem   priznali   nesmiselnost  človeškegaživljenja
 
 # 1) ekistencialistične prvine
