@@ -1,3 +1,7 @@
+###Literarna zvrst: EPIKA
+###Literarna vrsta: NOVELA
+###Obdobje: SOCIALNI REALIZEM
+            Književnost med 1. in 2. svetovno vojno
 # 1) O avtorju
 
 Njegovo pravo ime je bilo Lovrenc Kuhar, rodil se je v Kotljah na Koroškem leta 1893 (umrl l. 1950).Njegova spodbuda za pisanje je bila Zofka Kveder, urednica takratnega Domačega prijatelja.Uporabljal je različne psevdonime. Prva njegovih petih knjig je bila Povesti, nato Sodobnost,Samoratniki (knjiga), roman Požganica ter vojni roman Doberdob.
@@ -55,6 +59,8 @@ Karničniki so bili botri Hudabivnikom; Karničnik s svojim obnašanjem uniči c
  -groteskni izrazi (izlegla,...) 
  -veliko paralelizmov
  
+ # 12) Obnova
  
+ Pisatelj Voranc se je s prijateljem po dveurni hoji ustavil na vrhu slemena Karnic, kjer je nekoč gospodaril bogati kmetKarničnik. Bogate Karnice so propadle, od vsega posestva je ostala le bajta. Na pragu ju je pozdravila starka Nana, kijima je začela pripovedovati zgodbo preteklosti. Pred sto leti je na Karnicah gospodaril predzadnji Karničnik, ki je imel dvasina in hčer. Najstarejšemu sinu je bilo ime Ožbej. Ko je imel dvajset let, je na Karnice prišla služit revna kajžarska hčiHudabivška Meta. Ožbej se je vanjo zaljubil in Meta je s sedemnajstimi leti rodila prvega otroka. Ker je bila to za Karnicevelika sramota, je hotel stari Karničnik preprečiti njuno zvezo. Meto je kaznoval tako, da so ji na dlaneh žgali predivo.Toda Meta se ni hotele odpovedati svoji ljubezni. Nato so jo nagnali s Karnic in Meta je odšla služit na samotni kraj obDravi. Čez dve leti je rodila drugega Ožbejevega otroka. Karničnik je hotel Meto prepričati, naj se odpove Ožbeju, todaona je ostala odločna. Odvedli so jo v graščino in ji naložili petdeset udarcev. Oče je hotel Ožbeja poročiti z bogatimdekletom, toda v noči pred poroko je Ožbej pobegnil in se po osmih dneh vrnil pijan. Karničnik je hotel na vsak načinpreprečiti zvezo med Ožbejem in Meto, zato je sina poslal v vojsko, od koder se je Ožbej vrnil s prestreljeno nogo.Pogosto je zahajal k Meti in še bolj pil. Meta mu je rodila devet otrok, Ožbej ji je obljubljal poroko, stari Karničnik pa jetemu še vedno nasprotoval. Nekega večera se je Ožbej pijan utopil v jezeru. Meta je ostala sama s svojimi samorastnikiin jih vzgajala z ljubeznijo in ponosom. Zdaj je rasel že četrti rod Metinih otrok in Nana je bila njena najmlajša hči. Mladigospodar, Ožbejev mlajši brat, je prodal Karnice in si kupil posestvo v dolini. Ker je bil slab gospodar, je posestvopropadlo.
 
 
