@@ -1,3 +1,7 @@
+###Literarna zvrst: EPIKA
+###Literarna vrsta: NOVELA
+###Obdobje: SOCIALNI REALIZEM
+            Književnost med 1. in 2. svetovno vojno
 # 1) O avtorju
 
 Njegovo pravo ime je bilo Lovrenc Kuhar, rodil se je v Kotljah na Koroškem leta 1893 (umrl l. 1950).Njegova spodbuda za pisanje je bila Zofka Kveder, urednica takratnega Domačega prijatelja.Uporabljal je različne psevdonime. Prva njegovih petih knjig je bila Povesti, nato Sodobnost,Samoratniki (knjiga), roman Požganica ter vojni roman Doberdob.
