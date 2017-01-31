@@ -1,4 +1,6 @@
 # Prežihov Voranc: Boj na Požiralniku
+###Literarna zvrst je EPIKA
+###Literarna vrsta je NOVELA
 ## Obnova
 Dihurjevi so živeli na zelo težavni zemlji, saj so jim ob vsakih padavinah požiralniki uničili skoraj ves pridelek. Zato so otroke pošiljali za pastirje. Sosedovi pa z njimi niso ravnali najlepše, zato se je mali Dihur odločil in pobegnil domov. Pred očetom se je skrival cele tri dni, a ko ga je oče našel, ga je tako nalomil, da ga je začela metati božjast. Ko je oče umrl je bajta pripadala njemu. Poleg bajte pa je podedoval še dolg petstotih kron. Ženo je našel pri bajti na Komeljnu. Zaradi premokre posesti se je Dihur včlanil v kmetijsko zadrugo, toda ker je videl, da ga imajo samo zato, da plačuje članarino se je tretje leto izpisal. Zemlje je bila ilovnata, zato je bilo zelo težko orati, ker pa niso imeli volov so morale to delo opravljati krave. Po šestih deževnih letih pa je prišla bolj suha sezona. Vsi drugi so zaradi suše hodili k maši ter prosili dežja, le Dihurjevi so ostajali doma in občudovali prečudovite posevke. Toda drugo leto pa je bilo ravno obratno, so pa oni na hribu bili vedno doma, Dihurjevi pa so hodili k maši za bolj suho obdobje.
 
