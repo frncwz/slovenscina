@@ -1,3 +1,6 @@
+###Literarna zvrst: EPIKA
+###Literarna vrsta: NOVELA
+###Obdobje: EKSPRESIONIZEM
 # 1) Obnovi novelo.
 
 Pisatelj nam pripoveduje, kako skupine ljudi romajo proti Gorici, kjer naj bi usmrtili upornike. To se je odvijalo leta 1714 v aprilu. Med romarji pa sta bila tudi Matko in njegova hčer Tina, ki je bila noseča. Otrokov oče je bil Janez Gradnik, ki je bil upornik. Pisatelj nam razkrije Matka kot primitivnega pijančka, ki venomer zaostaja za skupino in se tolaži z vinom, njegova hči pa še zadnjič želi videti Gradnika, preden ga usmrtijo. Zanimiv je pogovor med Matkom in soromarjem, ko izvemo, da Matko krivi uporniškega Gradnika za hčerine težave. Napetost se začne stopnjevati, ko Tino dobi popadke. Bila je še na poti in šele v sedmem mesecu nosečnosti, poleg vsega pa se je še bala, da ne bi zamudila obsodbe. Legla je, da bi si malo odpočila in se zatekla k molitvi za svojega še nerojenega otroka. Njene molitve so bile uslišane, ko se je z neba prikazala ,,Gospa nebes``, ki ji je rešila otroka, tako da je otroka predala Ročinjskim ženam, Tino pa vzela s seboj v nebesa. Konec pa je rahlo grotesken, saj se Matek vrača mimo vasi, kjer je umrla Tina, a je zaradi opitosti ne najde. Vseskozi pa si prepeva: ,,Vsem galjotom vile v vamp!`
